@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Backend development.**
 
-- 💬 Ask me about **tech, marketing (B2B and B2C).**
+- 💬 Ask me about **tech and marketing (B2B and B2C).**
 
 - 📫 How to reach me **manojbhamaraddi@gmail.com**
 
