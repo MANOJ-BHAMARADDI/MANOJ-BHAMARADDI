@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **manojbhamaraddi@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TVB3428-3PrClzzWntQnaQx80AaHsuDu/view?usp=sharing](https://drive.google.com/file/d/19HEvWqYN5zRsDspcGvaP4xWIFzaUj8iX/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1E5a49qWr-qjqlZPPKKXbOgjmxTmzN9q-/view?usp=sharing](https://drive.google.com/file/d/1E5a49qWr-qjqlZPPKKXbOgjmxTmzN9q-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
